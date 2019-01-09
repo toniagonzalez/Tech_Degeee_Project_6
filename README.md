@@ -1,1 +1,1 @@
-# Tech_Degeee_Project_6
+# Tech_Degree_Project_6
